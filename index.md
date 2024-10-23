@@ -1,9 +1,7 @@
-## NITHYA SRI DEVI
+##                                        NITHYA SRI DEVI V
+*                               Ph: 8098947496 [Email](nithyasridevi26@gmail.com) [LinkedIn](https://www.linkedin.com/in/nithya-sri-devi-v-607494205/)
 
-**THANTHAI PERIYAR GOVERNMENT INSTITUTE OF TECHNOLOGY, VELLORE**
 
-*ELECTRONICS AND COMMUNICATION ENGINEERING 2020-2024*
 
-[Link to Google](https://www.google.co.in/)
 
-![My Picture](https://th.bing.com/th/id/OIP.lpL40VJTphR3MOem2e7MkQHaEK?rs=1&pid=ImgDetMain)
+
